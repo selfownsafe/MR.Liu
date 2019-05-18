@@ -5,7 +5,7 @@ MR.Liu belong to drink,page
 
     >初级辣椒水
 
-    生鲜辣椒水
+    生鲜辣椒水 1
     凉辣椒水
     熟辣椒水
     凉辣椒油
