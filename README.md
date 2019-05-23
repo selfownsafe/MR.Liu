@@ -3,8 +3,12 @@
 MR.Liu belong to drink,page </br>
 baiming小学生
 
-    Dingbai ming
-    Dingsong liang
+    
+    
+    电动牙刷对牙齿不太好,毕竟是克隆工程里面的一项
+    配合手动刷牙没问题
+    
+    
     >初级辣椒水
 
     生鲜辣椒水 1次
