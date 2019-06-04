@@ -1,7 +1,11 @@
 # MR.Liu
 刘学军专属饮品,页  </br>
 MR.Liu belong to drink,page </br>
-baiming小学生
+baiming小学生 </br>
+职业:半个快递员,半个企业家,  </br>
+半个医学,学者,陪练    </br>
+
+
 
     打散
     
