@@ -3,7 +3,7 @@
 MR.Liu belong to drink,page </br>
 baiming小学生 </br>
 职业:半个快递员,半个企业家,  </br>
-半个医学,学者,还haí是陪练    </br>
+半个医学,学者,还haí是陪练,针灸人偶级别一样    </br>
 
 
 
